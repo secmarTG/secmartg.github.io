@@ -1,1 +1,0 @@
-# secmartg.github.io
